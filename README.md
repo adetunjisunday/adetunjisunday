@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about my learning journey
 - 📫 How to reach me: https://linktr.ee/adetunji.sunday
 - 😄 Pronouns: (HE/HIM/HIS)
-- ⚡ Fun fact: I love fun...lol
+- ⚡ Fun fact: I love fun.
